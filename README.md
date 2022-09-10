@@ -1,0 +1,1 @@
+"# wideastore.github.io" 
